@@ -1,5 +1,5 @@
 This is really cool!
 
-What shoul I do??? < Correct this spelling error for me pls.
+What should I do??? < Correct this spelling error for me pls.
 
 OMGOMGOMG
